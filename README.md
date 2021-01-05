@@ -1,6 +1,6 @@
 # Portfolio 2021
 
-_**This site is currently under construction, come back later for the link!**_
+_**This site is currently under construction, please come back later for the link!**_
 
 You can find more of my work at:
 
